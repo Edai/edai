@@ -1,4 +1,3 @@
-<br/><br/>
 Just visit www.valentinkao.com
 <br/><br/>
 ✉️ Contact: me@valentinkao.com
